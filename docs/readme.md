@@ -1,14 +1,14 @@
 ## 讲者 SPEAKER
 
-请下载”讲者授权协议 CN-1.0.pdf“，填写相应内容后打印签名，并将扫描件发送到[support@tedxgaoxinroad.com](mailto:support@tedxgaoxinroad.com)。
+请下载”[TEDxGaoxinRoad_SPEAKER_RELEASE_CN.pdf](/TEDxGaoxinRoad_SPEAKER_RELEASE_CN)“，填写相应内容后打印签名，并将扫描件发送到[support@tedxgaoxinroad.com](mailto:support@tedxgaoxinroad.com)。
 
-Please download "讲者授权协议EN-1.0.pdf" and fill in blanks including Signature (Printed). Then print, sign and send the scanned copy to [support@tedxgaoxinroad.com](mailto:support@tedxgaoxinroad.com).
+Please download "[TEDxGaoxinRoad_SPEAKER_RELEASE_EN.pdf](/TEDxGaoxinRoad_SPEAKER_RELEASE_EN.pdf)" and fill in blanks including Signature (Printed). Then print, sign and send the scanned copy to [support@tedxgaoxinroad.com](mailto:support@tedxgaoxinroad.com).
 
 ## 策展团队
 
-在线填写：请下载“CURATION_APPLICATION_POST.pdf”，填写相应内容后添加数字签名，保存发送到[support@tedxgaoxinroad.com](mailto:support@tedxgaoxinroad.com)
+在线填写：请下载“[CURATION_APPLICATION_POST.pdf](/CURATION_APPLICATION_POST.pdf)”，填写相应内容后添加数字签名，保存发送到[support@tedxgaoxinroad.com](mailto:support@tedxgaoxinroad.com)
 
-打印：请下载并打印“CURATION_APPLICATION_PRINT.pdf”，填写相应内容后签名并递交到TGR策展团队。
+打印：请下载并打印“[CURATION_APPLICATION_PRINT.pdf](/CURATION_APPLICATION_PRINT.pdf)”，填写相应内容后签名并递交到TGR策展团队。
 
 ## 注意 NOTICE
 
